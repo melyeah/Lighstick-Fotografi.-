@@ -1,0 +1,2 @@
+# Lighstick-Fotografi.-
+tugas ict 
